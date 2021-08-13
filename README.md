@@ -22,6 +22,12 @@ Here's A List of Links To satisfy Anything.
 
 [Unofficial r/ProPutterPlayz Reddit](https://www.reddit.com/r/ProPutterPlayz/)
 
+[Putter Productions Discord Server](https://discord.gg/ProPutterPlayz)
+
+[Newgrounds Profile](https://mattl2554.newgrounds.com/)
+
+[Spotify Profile](https://open.spotify.com/user/31nmodxriwem377dlxamlwaaw2xq)
+
 ## RARE Websites
 
 [Adobe Behance Profile](https://www.behance.net/MattTheliew2554)
