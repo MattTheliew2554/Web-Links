@@ -26,6 +26,10 @@ Here's A List of Links To satisfy Anything.
 
 [Newgrounds Profile](https://mattl2554.newgrounds.com/)
 
+[Steam Profile](https://steamcommunity.com/id/MattTheliew2554/)
+
+[My Github Profile](https://github.com/MattTheliew2554)
+
 [Spotify Profile](https://open.spotify.com/user/31nmodxriwem377dlxamlwaaw2xq)
 
 ## RARE Websites
