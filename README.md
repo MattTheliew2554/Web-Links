@@ -8,7 +8,7 @@ Here's A List of Links To satisfy Anything.
 
 [Second Youtube Channel](https://www.youtube.com/channel/UCKqmhjMv0qIzJ0JBk_wEaVg)
 
-[Roblox Profile](https://web.roblox.com/users/389353170/profile)
+[Roblox Profile](https://www.roblox.com/users/389353170/profile)
 
 [Twitter Profile](https://twitter.com/liew2554)
 
